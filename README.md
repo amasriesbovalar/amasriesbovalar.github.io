@@ -1,1 +1,0 @@
-# amasriesbovalar.github.io
